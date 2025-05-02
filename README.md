@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+HI 👋🏾
+I'm Joseph Jo
+I'm an engeneer in Network and Telecommunications but I'm interested in developing. 
+so I'm learning about many thing 😰.
+I am wondering if I'm on the right way 🤔 so you can give me some advices or motivation points to help me move forward
+
+📫 How to reach me: mbouijoseph@mail.com
